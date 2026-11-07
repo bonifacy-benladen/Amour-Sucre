@@ -211,4 +211,4 @@ Amour Sucré is the **full free version** of the game, offering all features and
 Get ready to download Amour Sucré and embark on your adventure today! Flirt, explore, and enjoy the journey in Sweet Amoris high school.
 
 ---
-**Last updated:** 2026-11-07 19:57:07 UTC
+**Last updated:** 2026-11-07 23:33:14 UTC
